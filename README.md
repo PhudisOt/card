@@ -1,1 +1,1 @@
-ลองกด https://chinrath.github.io/card/
+ลองกด https://phudisot.github.io/card/
